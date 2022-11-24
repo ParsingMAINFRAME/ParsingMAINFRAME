@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Anything!
 - 📫 How to reach me: feel free to send me a message or a pull request if that's the correct terminology. 
 - 😄 Pronouns: :bowtie: :snowman: :ant:
-- ⚡ Fun fact: I'm too tired to think of any fun facts right now!
+- ⚡ Fun fact: I'm too tired to think of any fun facts right now! I love Lost Ark!
 -->
